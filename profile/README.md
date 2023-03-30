@@ -1,1 +1,1 @@
-We exist some of the time. ⚙️
+We exist some of the time.
